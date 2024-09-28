@@ -1,3 +1,0 @@
-# zentiouss.github.io
-
-## Hey
